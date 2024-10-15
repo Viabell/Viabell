@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Viabell
-- 👀 I’m interested in Kim Minsik
+- 👀 I’m interested with Kim Minsik
 - 🌱 I’m currently learning how to fall in love
 - 💞️ I’m looking to collaborate on sigma
 - 📫 How to contact me: ig @_viabell
