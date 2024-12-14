@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on sigma
 - 📫 How to contact me: ig @_viabell
 - 😄 Pronouns: cat eye
-- ⚡ Fun fact: im sigma
+- ⚡ Fun fact: i love cat eye
 
 <!---
 Viabell/Viabell is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
