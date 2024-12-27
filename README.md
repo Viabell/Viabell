@@ -1,9 +1,7 @@
 - 👋 Hi, I’m @Viabell
 - 👀 I’m interested with Kim Minsik
-- 🌱 I’m currently learning how to fall in love
-- 💞️ I’m looking to collaborate on sigma
+- 🌱 I’m currently learning how to code
 - 📫 How to contact me: ig @_viabell
-- 😄 Pronouns: cat eye
 - ⚡ Fun fact: i love cat eye
 
 <!---
